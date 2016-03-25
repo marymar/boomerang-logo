@@ -1,11 +1,12 @@
 # The Boomerang Logo
 
-Some weeks ago we at eSailors set up a new team in our Area where I am part of.
-We named us 'Team Boomerang' because we our team takes over the responsible of customer retention.
+Some weeks ago we set up a new team in our area where I am part of.
+We named us 'Team Boomerang' because our team took over the responsible of customer retention.
 
-I thought we should come up with an logo too and so I spent my spare time drawing an idea first on paper and designing it with Adobe's Illustrator.
+I thought we should come up with a logo too and so I spent my spare time drawing an idea first on paper and designing it with Adobe's Illustrator.
 
-I actually worked the last time with Illustrator during my study time - 20 years ago. What a long time..?!
+I actually worked the last time with Illustrator during my study time sometime in 2000.
+...A long time ago..?!
 
 So, here you can find the outcome.
 
